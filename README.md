@@ -3,7 +3,7 @@
 
 包括：**源码、论文、任务书、PPT**
 
- [https://pan.baidu.com/s/1F1lU4En_M-v81dSvU5cIow?pwd=1jmm](https://pan.baidu.com/s/1F1lU4En_M-v81dSvU5cIow?pwd=1jmm)    提取码：jmha
+ [https://pan.baidu.com/s/1F1lU4En_M-v81dSvU5cIow?pwd=1jmm](https://pan.baidu.com/s/1F1lU4En_M-v81dSvU5cIow?pwd=1jmm)    提取码：1jmm
 
 ### 项目预览：
 
